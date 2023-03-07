@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **aman.work017@gmail.com**
 
-- ⚡ Fun fact **I love hanging around with hot chicks**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
